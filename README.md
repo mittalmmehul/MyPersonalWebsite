@@ -1,1 +1,1 @@
-Contact developer for more information
+Contact Mehul Mittal for more information
